@@ -1,1 +1,1 @@
-# curiosity.com
+# curiosity1.com
